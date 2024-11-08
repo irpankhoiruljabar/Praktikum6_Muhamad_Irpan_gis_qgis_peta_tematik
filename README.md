@@ -1,0 +1,1 @@
+# Praktikum6_Muhamad_Irpan_gis_qgis_peta_tematik
